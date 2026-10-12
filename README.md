@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @bendelibiralya ヾ(｡>ｖ<｡)ﾉﾞ。
 - 👀 I’m interested in coding!! 
-- 🌱 I’m currently learning pyhton pro! 
 - 📫 Can't reach me ¯\\(ツ)/¯
 - ⚡ Fun fact: i used to have a baby chicken 
 
